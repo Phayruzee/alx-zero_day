@@ -1,1 +1,1 @@
-My first readme
+CHELSEA FOR THE CUP
